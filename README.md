@@ -1,0 +1,1 @@
+Chicken is consumed all over the world, it is also one of Brazil's largest industries. This is a billion dollar industry in Brazil and the world at large, this is a dive into the world of chicken supply.
